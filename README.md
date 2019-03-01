@@ -1,1 +1,1 @@
-# Para-Bozma-Makinesi-Tasar-m-
+# Para-Bozma-Makinesi-Tasarimi
